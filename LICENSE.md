@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered 1inch trading bot Plugin | auto-compounding + rug-pull-detection, the #1 1inch trading bot. Includes auto-compounding and rug-pull-detection
 
 
 
